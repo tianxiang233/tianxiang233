@@ -1,4 +1,4 @@
-# ![推荐前往我的主账号](https://github.com/TNXG)
+# [推荐前往我的主账号](https://github.com/TNXG)
 
 ![](https://prts.top/api/img/wallpaper/?type=cdn)
 
